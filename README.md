@@ -1,1 +1,1 @@
-![alt text](https://media.discordapp.net/attachments/1347754341389303931/1426136584431996980/IMG_20251010_161416.png?ex=68ea20b2&is=68e8cf32&hm=4d8879a6aaba78a8685312a9aeb922d7db59fa20aff3fda429e1d5ac5501b2b7&=&format=webp&quality=lossless&width=666&height=656)
+![alt text](https://i.ibb.co/TBV6mPkd/IMG-20251010-161416.webp)
