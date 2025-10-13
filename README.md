@@ -1,11 +1,11 @@
                  ![alt text]([https://i.ibb.co/Zz1K8wHG/IMG-20251010-161416.png](https://media.discordapp.net/attachments/1347754341389303931/1420834614544564395/IMG_20250926_010920.png?ex=68ed4059&is=68ebeed9&hm=5c435bab8d1ae57fed42877bb02a1fab97de784199325641414ade1b3633d765&=&format=webp&quality=lossless))
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-♱ㅤㅤ𓎟ㅤㅤㅤㅤㅤㅤㅤㅤㅤ__ㅤㅤㅤㅤ__ㅤㅤ
-ㅤㅤㅤㅤㅤㅤ" ***COME ALONG __DOWN W__ ME.*** "ㅤㅤ𓏵ㅤㅤ
-
-
-ㅤㅤ ㅤㅤㅤㅤㅤ**Dan~~iel~~**ㅤ__ㅤㅤ__𓎟ㅤㅤㅤ**C~~hir~~ur__g__**
+♱    𓎟                __ㅤㅤㅤㅤ__ㅤㅤ
+            " ***COME ALONG __DOWN W__ ME.*** "      𓏵ㅤㅤ
+      
+        
+            **Dan~~iel~~**ㅤ__ㅤㅤ__𓎟      **C~~hir~~ur__g__**
 
 ㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ[¹](https://pronouns.cc/@DAN1ELTH3CANN1B4L)ㅤㅤㅤㅤㅤ[²](https://dan1el.atabook.org/)ㅤㅤㅤㅤㅤ [³](https://pronouns.cc/@DAN1ELTH3CANN1B4L/𓏵%F3%A0%80%A0%F3%A0%80%A0%F3%A0%80%A0%F3%A0%80%A0%E2%A0%80%20%E2%A0%80%20%E2%A0%80%20LOVEMAIL%E2%A0%80%20⟢)
+          [¹](https://pronouns.cc/@DAN1ELTH3CANN1B4L)          [²](https://dan1el.atabook.org/)          [³](https://pronouns.cc/@DAN1ELTH3CANN1B4L/𓏵%F3%A0%80%A0%F3%A0%80%A0%F3%A0%80%A0%F3%A0%80%A0%E2%A0%80%20%E2%A0%80%20%E2%A0%80%20LOVEMAIL%E2%A0%80%20⟢)
