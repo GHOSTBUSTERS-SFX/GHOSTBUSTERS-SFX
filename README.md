@@ -43,15 +43,14 @@ $\color{#f6c049}\small{\textsf{"That depends, who's asking?"}}$
 ㅤㅤㅤㅤ $\color{#bd5705}\scriptsize{\textsf{Probelmatic fandoms/medias}}$ $\color{#bd5705}\scriptsize{\textsf{. }}$
 
 
-$\color{#}\small{\textsf{Block freely if uncomfortable.}}$
+$\color{#}\small{\textsf{Block freely if uncomfortable.}}$ ㅤ
+
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img src="https://komarev.com/ghpvc/?username=GHOSTBUSTER-SFX&base=10&color=f6c049&style=flat&label=wait+for+it+!" title="I'm willing to wait for it">
 </div>
-ㅤㅤㅤㅤ
-
-
 
 
 
 #
 
-
+<br>[<sub>@ponytown-nominations</sub>](https://github.com/ponytown-nominations) [<sub>@pt-medals</sub>](https://github.com/pt-medals) [<sub>@ponytown-nominations</sub>](https://github.com/pt-walk-of-fame">@pt-walk-of-fame)<br>
  ㅤ 
